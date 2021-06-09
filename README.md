@@ -5,6 +5,7 @@
 #### 微信：xuxinsd
 
 
+Notion: https://www.notion.so/xuxinsd/0e14e52d96664b4dae9a4fdc55689d6a
 
 ![鑫法言说二维码02.jpg](https://i.loli.net/2019/12/25/Jn34uABIHTcDMZW.jpg)
 
