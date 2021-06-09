@@ -1,5 +1,17 @@
 ### Hi there 👋
 
+### 徐鑫律师 13220730098
+
+#### 微信：xuxinsd
+
+
+
+![鑫法言说二维码02.jpg](https://i.loli.net/2019/12/25/Jn34uABIHTcDMZW.jpg)
+
+
+
+![01封底-鑫法言说周刊.png](https://i.loli.net/2020/03/23/5PREklGF1imoVvQ.png)
+
 <!--
 **xuxinsd/xuxinsd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
